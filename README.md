@@ -1,1 +1,1 @@
-## Make you own logo for your business
+## Make your own logo for your business
